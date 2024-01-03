@@ -12,7 +12,7 @@ As a collaborative team player, I am eager to contribute to exciting and challen
 
 ## CONNECT WITH ME
 
-- LinkedIn: [https://www.linkedin.com/in/sasmitha-a-85b023273]
+- LinkedIn: https://www.linkedin.com/in/sasmitha-a-85b023273
 - Email: sasmitha2073@gmail.com
 
 Feel free to reach out!
